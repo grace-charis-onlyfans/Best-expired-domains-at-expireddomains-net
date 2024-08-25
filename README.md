@@ -1,4 +1,4 @@
-# Best-expired-domains-at-expireddomains-net
+# Best-expired-domains-from-expireddomains-net
 Get premium quality expired domains at dirt cheap prices ( exclusive )
 
 ### Expired Domains: A Comprehensive Guide
